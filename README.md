@@ -1,5 +1,5 @@
 # 💫 About Me:
-Lười + Nhác = Nguyễn Vũ Khanh<br>Fan Bayern Munich<br>Thích chơi game và ... ngủ
+Nguyễn Vũ Khanh<br>Fan Bayern Munich<br>Thích chơi game, ham học hỏi và ... ngủ
 
 
 ## 🌐 Socials:
